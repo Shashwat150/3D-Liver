@@ -1,0 +1,1 @@
+C:\Users\shashwat\AppData\Local\Programs\Tesseract-OCR
